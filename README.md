@@ -2,4 +2,4 @@
 - 👀 I’m interested in Artifical Intelligence And Machine learning 
 - 🌱 I’m currently learning Data Structure and Algorithm 
 - 💞️ I’m looking to collaborate on open source project
-- 📫 How to reach me -sahidulhaque08676@gmail.com
+- 📫 How to reach me -https://www.linkedin.com/in/sahidul-haque-baa954261/
